@@ -1,4 +1,8 @@
 ### Hi there 👋
+- I’m @Kr1tchayA 
+- I’m interested in game and digital drawing (Vharacter Design).
+- I’m studying at Panyapiwat Institute of Management 
+- I'm pleasure to meet you.💞️
 
 <!--
 **Kr1tchayA/Kr1tchayA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
